@@ -1,1 +1,1 @@
-# -https://neccyusho.mhlw.go.jp/study/
+https://neccyusho.mhlw.go.jp/study/
